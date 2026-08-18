@@ -1,4 +1,4 @@
-<br>****World Yuan Resver Board
+****World Yuan Resver Board
 <br>世界元储备局****
 <br>[www.worldyuan.net](https://www.worldyuan.net)
 <br>
